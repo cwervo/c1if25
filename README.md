@@ -1,0 +1,1 @@
+# Core 1: Interaction @ Parsons (Fall 2025)
